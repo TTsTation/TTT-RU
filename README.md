@@ -4,7 +4,7 @@
 
 ## Ссылки
 
-[Discord](https://discord.gg/YdeUwBrweY) | [Steam](https://store.steampowered.com/app/3731580/Space_Station_Beyond/)) 
+([Discord](https://discord.gg/YdeUwBrweY) | [Steam](https://store.steampowered.com/app/3731580/Space_Station_Beyond/)) 
 
 ## Контрибутер
 
